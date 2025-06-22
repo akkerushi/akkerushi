@@ -9,7 +9,7 @@
 - Networking & Computer Systems
 - 3D Modeling: Autodesk Inventor
 
-🌍 I speak Ukrainian 🇺🇦, Russian 🇷🇺, English 🇬🇧, German 🇩🇪, and I’m learning Chinese 🇨🇳. 
+🌍 I speak: 🇺🇦 Ukrainian, 🇷🇺 Russian, 🇬🇧 English, 🇩🇪 German, and I’m learning 🇨🇳 Chinese.
 
 🚀 I enjoy learning, exploring new technologies, and solving engineering challenges. I combine my studies with real hands-on work and I'm always open to new opportunities and collaborations.
 
