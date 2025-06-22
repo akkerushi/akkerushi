@@ -36,4 +36,4 @@ You can reach me via email or through any of the social media accounts listed in
 
 ## ⚡ Fun fact
 
-I learned to solder before I learned to cook.
+I learned to solder before I learned to cook:)
